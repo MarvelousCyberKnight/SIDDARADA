@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SIDDARADA
+- 👋 Hi, I’m @SIDDARDA GOWTHAM
 - 👀 I’m interested in ... cyber security and ethical hacking
 - 🌱 I’m currently learning ... computer kanguages
 - 💞️ I’m looking to collaborate on ... CYBER SECURITY COMPANIES
